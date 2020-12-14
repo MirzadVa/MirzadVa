@@ -4,7 +4,7 @@
 ## I'm a Student, Developer, and Gamer!!
 
 - 🌱 I’m currently learning everything 🤣
-- 👯 I’m looking to collaborate with other content creators
+- 👯 I’m looking to collaborate with other developers
 - ⚡ Fun fact: I love to eat a lot 🤣
 
 ### Connect with me:
