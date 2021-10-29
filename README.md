@@ -1,7 +1,7 @@
 ### Hi there, I'm Mirzad 👋
 
 
-## I'm a Student, Developer, and Gamer!!
+## I'm a Developer, and Gamer!!
 
 - 🌱 I’m currently learning everything 🤣
 - 👯 I’m looking to collaborate with other developers
